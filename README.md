@@ -3,7 +3,7 @@ It’s a place where anyone can submit quality articles on any topic, if the ess
 
 Editor: Fortune Kolawole
 Storytelling Director: Bode Olatunbosun
-CEO/Founder: Felix Ayoola
+Creative director/Founder: Felix Ayoola
 
 A blog with this layout 
 
